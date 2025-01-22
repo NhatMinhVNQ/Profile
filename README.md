@@ -1,12 +1,17 @@
 ## **Thuê Scripts Maru Hub**
 
-**3K / 1 Day Maru**
-
-**21K / 7 Day Maru**
+**3K / 1 Day**
+**21K / 7 Day**
 
 **Combo Giảm Giá**
+**85K / 1 Tháng**
 
-**85K / 1 Tháng Maru**
+## **Thuê Scripts Banana Hub**
+
+**4K / 1 Day**
+**28K / 7 Day**
+
+# THUÊ ĐIỀU BOUNUS THÊM 2 - 5 DAY NHÉ
 
 **Buy Luôn Key Không Cần Thuê Nữa**
 Key Maru Hub Mobile (Bloxfruits,Fisch , King Legacy, v.v)
